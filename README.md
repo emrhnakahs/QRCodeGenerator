@@ -14,5 +14,4 @@
 # Contact 
  Instagram: @vexysocial 
   
- Discord: Vexy#1001
-  
+ Discord: vexyintheworld
